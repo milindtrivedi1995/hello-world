@@ -1,2 +1,2 @@
 # hello-world
-To test github with hello world.
+Any animal is loyal but humans.
