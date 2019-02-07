@@ -1,2 +1,2 @@
 # hello-world
-Any animal is loyal but humans.
+Any animal is loyal but huuuumnas.
